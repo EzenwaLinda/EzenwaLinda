@@ -6,7 +6,7 @@ I'm a Software Engineer,. I'm passionate about sharing knowledge, documentation,
 
 - 😊 Pronouns: He/him
 - 📫 How to reach me: DM [@EzenwaLinda](https://twitter.com/funaheadies).
-- 💙 Fun fact: I'm in a blissful relationship [with Jesus Christ]and i love crafting.
+- 💙 Fun fact: I'm in a blissful relationship [with Jesus Christ]
 
 ---
 
